@@ -1,4 +1,4 @@
-# 
+# Avanzado IObit Uninstaller preajustes para Mac OS | Profesional IObit Uninstaller preajustes para PC Windows. Con extracción de archivos y exportación de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
